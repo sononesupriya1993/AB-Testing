@@ -1,0 +1,1 @@
+This document went through multiple drafts. Draft 1 was my first attempt, Draft 2 reflects feedback and deeper thinking, and the Final version is the one I'd stand behind publicly
